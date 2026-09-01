@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-HELE010512HJCRMRA1
+HELE010512HJCRMRA1
